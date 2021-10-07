@@ -1,1 +1,1 @@
-# Spectrum-Satge-2
+# SPECTAGRAM-STAGE-2
